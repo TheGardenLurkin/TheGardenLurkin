@@ -1,4 +1,4 @@
-## 𐙚 благодарю за прочтение!
+## 𐙚 
 ![tavros-nitram-tavros](https://github.com/user-attachments/assets/66ed31e9-c652-40e4-8e1d-ce141ff03420)
 
 tg: rizrandolf
