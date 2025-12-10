@@ -1,8 +1,7 @@
 ## 𐙚 
 ㅤㅤㅤㅤㅤㅤ![tavros-nitram-tavros](https://github.com/user-attachments/assets/66ed31e9-c652-40e4-8e1d-ce141ff03420)
 
-ㅤㅤㅤㅤㅤㅤtg: rizrandolf
-⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺⸺vk: organic_mechanism
+
 
 
 ㅤㅤ<img width="655" height="601" alt="image" src="https://github.com/user-attachments/assets/a5fbe67d-e72f-4dfb-a06e-e006cd70cf9b" />
